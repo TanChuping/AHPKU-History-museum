@@ -1,4 +1,4 @@
-# AHPKU-History-museum
+# Affiliated highschool of Peking University -History museum 
 
 official link: www.pkuschoolhistory.com
 
